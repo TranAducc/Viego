@@ -1,0 +1,21 @@
+[
+  "Bot được mod và chỉnh sửa hoàn tất chỉ việc chạy",
+   "Bán file bot giá rẻ mua ib fb.me/fanqzhuang03",
+   "Thay credit cái củ cặc",
+   "Ủng hộ admin Momo: 0836620317",
+   "Tôn trọng người làm ra mdl và file nhé",
+   "Fork file rồi thay credit ch xong mà đem đi bán đúng xàm lồn",
+   "Thay credit và đó là cách 1 procoder ra đời:))))",
+   "Sơ hở là thay credit",
+   "Đừng làm bản sao của ngkhac b eiii",
+   "Yêu t = file bot xịn",
+   "Vạn sự khởi đầu nan",
+   "File Viego thay credit ch xong mà đòi bán",
+   "Gì cũng biết có mỗi biết điều là cái lũ súc vật thay credit mang bán file là đéo bao giờ biết",
+   "Súc vật coppy paste thay credit là thành pờ rồ cốt đơ 2023 liền",
+   "Mấy thằng lồn vắt mũi đéo sạch chỉnh file còn chưa xong bày đặt đem bán",
+   "Tụi con chó rách thấy dòng này thì ngừng ngay việc thay credit file bố rồi mang bán nhé clm chúng mày lũ súc vật",
+   "iam Viego",
+   "Mấy con chó fork file về thay credit xong đem đi bán là đầu buồi con cặc súc vật",
+   "File chỉ bán"
+  ]
